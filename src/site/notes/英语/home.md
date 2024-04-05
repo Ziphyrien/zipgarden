@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/英语/home/","dgPassFrontmatter":true}
+{"dg-publish":true,"dg-home":true,"permalink":"/英语/home/","tags":["gardenEntry"],"dgPassFrontmatter":true}
 ---
 
 ***导航***
