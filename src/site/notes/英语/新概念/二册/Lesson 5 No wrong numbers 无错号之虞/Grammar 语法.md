@@ -8,7 +8,7 @@
 ![g 3.jpg](/img/user/%E8%8B%B1%E8%AF%AD/%E6%96%B0%E6%A6%82%E5%BF%B5/%E4%BA%8C%E5%86%8C/Lesson%205%20No%20wrong%20numbers%20%E6%97%A0%E9%94%99%E5%8F%B7%E4%B9%8B%E8%99%9E/%E9%99%84%E4%BB%B6/g%203.jpg)
 ![g 4.jpg](/img/user/%E8%8B%B1%E8%AF%AD/%E6%96%B0%E6%A6%82%E5%BF%B5/%E4%BA%8C%E5%86%8C/Lesson%205%20No%20wrong%20numbers%20%E6%97%A0%E9%94%99%E5%8F%B7%E4%B9%8B%E8%99%9E/%E9%99%84%E4%BB%B6/g%204.jpg)
 ![g 5.jpg](/img/user/%E8%8B%B1%E8%AF%AD/%E6%96%B0%E6%A6%82%E5%BF%B5/%E4%BA%8C%E5%86%8C/Lesson%205%20No%20wrong%20numbers%20%E6%97%A0%E9%94%99%E5%8F%B7%E4%B9%8B%E8%99%9E/%E9%99%84%E4%BB%B6/g%205.jpg)
-![g 6.jpg](/img/user/%E8%8B%B1%E8%AF%AD/%E6%96%B0%E6%A6%82%E5%BF%B5/%E4%BA%8C%E5%86%8C/Lesson%205%20No%20wrong%20numbers%20%E6%97%A0%E9%94%99%E5%8F%B7%E4%B9%8B%E8%99%9E/%E9%99%84%E4%BB%B6/g%206.jpg)
+![[g 6.pg\|g 6.pg]]
 ![g 7.jpg](/img/user/%E8%8B%B1%E8%AF%AD/%E6%96%B0%E6%A6%82%E5%BF%B5/%E4%BA%8C%E5%86%8C/Lesson%205%20No%20wrong%20numbers%20%E6%97%A0%E9%94%99%E5%8F%B7%E4%B9%8B%E8%99%9E/%E9%99%84%E4%BB%B6/g%207.jpg)
 ![g 8.jpg](/img/user/%E8%8B%B1%E8%AF%AD/%E6%96%B0%E6%A6%82%E5%BF%B5/%E4%BA%8C%E5%86%8C/Lesson%205%20No%20wrong%20numbers%20%E6%97%A0%E9%94%99%E5%8F%B7%E4%B9%8B%E8%99%9E/%E9%99%84%E4%BB%B6/g%208.jpg)
 ![g 9.jpg](/img/user/%E8%8B%B1%E8%AF%AD/%E6%96%B0%E6%A6%82%E5%BF%B5/%E4%BA%8C%E5%86%8C/Lesson%205%20No%20wrong%20numbers%20%E6%97%A0%E9%94%99%E5%8F%B7%E4%B9%8B%E8%99%9E/%E9%99%84%E4%BB%B6/g%209.jpg)
